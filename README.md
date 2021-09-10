@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @barfedguy1996
+- 👀 I’m interested in holographic illusion technology
+- 🌱 I’m currently learning to fight Elementals
+- 💞️ I’m looking to collaborate on saving the world
